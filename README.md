@@ -1,0 +1,2 @@
+# premium-bench-seat-001-bench-seat-building-scoop-ca
+Tired of losing your bench seat build plans in a pile of wood shavings and sticky notes? This Notion template turns your bench-making chaos into a lean, mean scoop carving workshop.  The Bench Seat Building &amp; Scoop Carve Craft Lab eliminates the clutter of scattered measurements, tool lists, and step sequences. It gives you a centralized digital wo
